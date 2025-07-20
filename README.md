@@ -1,5 +1,5 @@
 
-![78905454938c374846de6d5f1dcadbb5](https://github.com/user-attachments/assets/8f36c066-bc13-4030-9143-afeb0c981fcb) ![f3158a0e2e7096eb0cfe7186ce4c6652](https://github.com/user-attachments/assets/6c21a96d-d4e8-4fdb-80c9-68c39da517fe)
+![78905454938c374846de6d5f1dcadbb5](https://github.com/user-attachments/assets/8f36c066-bc13-4030-9143-afeb0c981fcb)
 
 
 <h1 align="center">hi guys im mold/moldy/score</h1>
