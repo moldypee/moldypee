@@ -1,16 +1,16 @@
-## Hi there 👋
 
-<!--
-**moldypee/moldypee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![78905454938c374846de6d5f1dcadbb5](https://github.com/user-attachments/assets/8f36c066-bc13-4030-9143-afeb0c981fcb) ![f3158a0e2e7096eb0cfe7186ce4c6652](https://github.com/user-attachments/assets/6c21a96d-d4e8-4fdb-80c9-68c39da517fe)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h1 align="center">hi guys im mold/moldy/score</h1>
+<h3 align="center">umm i draw and stuff - TIKTOK : PARTYSCORES </h3>
+
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://instagram.com/moldypee" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="moldypee" height="30" width="40" /></a>
+</p>
+
+
+<h1 align="center"> !   - I AM BLACK IN REAL LIFE GUYS - i like one piece and eddsworld lmao
