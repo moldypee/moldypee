@@ -13,4 +13,4 @@
 </p>
 
 
-<h1 align="center"> !   - I AM BLACK IN REAL LIFE GUYS - i like one piece and eddsworld lmao
+<h1 align="center"> !   - I AM BLACK IN REAL LIFE GUYS DONT THINK IM RACIST TO MY OWN RACE. - i like one piece and eddsworld lmao
