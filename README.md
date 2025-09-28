@@ -3,7 +3,7 @@
 
 
 <h1 align="center">hi guys im mold/moldy/score</h1>
-<h3 align="center">umm i draw and stuff - TIKTOK : PARTYSCORES </h3>
+<h3 align="center">umm i draw and stuff </h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
