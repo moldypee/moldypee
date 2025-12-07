@@ -8,7 +8,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
 
-<img width="400" height="200" alt="tumblr_e7383e93fddde1250ffc9a033e04a95b_ac9266e8_400" src="https://github.com/user-attachments/assets/3a794ab4-2b5c-40e2-ba74-a52e2c3adaa2" />
+<img width="1000" height="400" alt="tumblr_e7383e93fddde1250ffc9a033e04a95b_ac9266e8_400" src="https://github.com/user-attachments/assets/3a794ab4-2b5c-40e2-ba74-a52e2c3adaa2" />
 
 
 <h1 align="center"> !   - i love eddsworld + one piece + dandys world 
