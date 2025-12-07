@@ -31,4 +31,5 @@
 
 <h1 align="center"> !   - (￣o￣) . z Z
 
-<img width="1000" height="450" alt="tumblr_e7383e93fddde1250ffc9a033e04a95b_ac9266e8_400" src="https://github.com/user-attachments/assets/3a794ab4-2b5c-40e2-ba74-a52e2c3adaa2" />
+
+<h1 <img width="1000" height="450" alt="tumblr_e7383e93fddde1250ffc9a033e04a95b_ac9266e8_400" src="https://github.com/user-attachments/assets/3a794ab4-2b5c-40e2-ba74-a52e2c3adaa2" />
