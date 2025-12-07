@@ -1,6 +1,7 @@
 
 ![78905454938c374846de6d5f1dcadbb5](https://github.com/user-attachments/assets/8f36c066-bc13-4030-9143-afeb0c981fcb)
 
+![image (1)](https://github.com/user-attachments/assets/e6a6baca-8425-44c7-b0ef-688c8110c152)
 
 <h1 align="center">hi guys im mold/moldy/score</h1>
 <h3 align="center">umm i draw and stuff </h3>
@@ -13,4 +14,4 @@
 </p>
 
 
-<h1 align="center"> !   - I AM BLACK IN REAL LIFE GUYS DONT THINK IM RACIST TO MY OWN RACE. - i like one piece and eddsworld lmao
+<h1 align="center"> !   - i love eddsworld + one piece + dandys world
