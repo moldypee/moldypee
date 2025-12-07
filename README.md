@@ -4,7 +4,7 @@
 
 
 <h1 align="center"> hi guys </h1>
-<h3 align="center"> i draw and stuff </h3>
+<h3 align="center"> i like to draw and stuff </h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
@@ -14,4 +14,7 @@
 </p>
 
 
-<h1 align="center"> !   - i love eddsworld + one piece + dandys world
+<h1 align="center"> !   - i love eddsworld + one piece + dandys world 
+
+
+<h1 align="center"> <img width="700" height="500" alt="Screenshot 2025-12-06 163540" src="https://github.com/user-attachments/assets/0d2b7778-3129-4f3c-9602-655f73079d81" />
