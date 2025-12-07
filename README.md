@@ -2,8 +2,8 @@
 <h1 align="center"> <img width="446" height="343" alt="Screenshot 2025-12-06 212022" src="https://github.com/user-attachments/assets/c6e10dfa-50dd-4a70-b15a-28354736ff87" />
 
 <h1 align="center"> hi guys </h1>
-<h3 align="center"> i like to draw and stuff, i think im quite nice! i suck at forming conversations so yeah... hahahehehe </h3>
-<h3 align="center"> V,B,E,M,V,E i luv my friends <3 </h3>
+<h3 align="center"> i like to draw and stuff, check out my humble strawpage for more info BAI ヾ(＠⌒ー⌒＠)ノ <3  </h3>
+<h3 align="center"> V,B,E,M,V,E i luv my friends <3 !!! </h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
