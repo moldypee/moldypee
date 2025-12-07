@@ -1,7 +1,7 @@
 
-![78905454938c374846de6d5f1dcadbb5](https://github.com/user-attachments/assets/8f36c066-bc13-4030-9143-afeb0c981fcb)
+<img width="446" height="343" alt="Screenshot 2025-12-06 212022" src="https://github.com/user-attachments/assets/c6e10dfa-50dd-4a70-b15a-28354736ff87" />
 
-![image (1)](https://github.com/user-attachments/assets/e6a6baca-8425-44c7-b0ef-688c8110c152)
+
 
 <h1 align="center">hi guys im mold/moldy/score</h1>
 <h3 align="center">umm i draw and stuff </h3>
