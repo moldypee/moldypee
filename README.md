@@ -33,5 +33,6 @@
 
 <h1 align="center"> !   - (￣o￣) . z Z
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=Profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
 
