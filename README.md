@@ -3,9 +3,9 @@
 
 <h3 align="center"> hello </h1>
 <h3 align="center"> i like to draw and stuff, check out my humble strawpage for more info BAI ヾ(＠⌒ー⌒＠)ノ <3  </h3>
-<h3 align="center">  i luv my friends <3 !!! </h3>
-  <h3 align="center"> i am 13 so if that makes u uncomfy then thats fine </h3>
-<h3 align="center"> DO NOT COVER+COPY </h3>
+<h3 align="center">  i luv my friends  </h3>
+  <h3 align="center"> i am 13 so if that makes u uncomfy then i respeckt </h3>
+<h3 align="center"> plz dont cove Tank u  </h3>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=moldypee&label=profile%20views&color=0e75b6&style=flat" alt="moldypee" /> </p>
 
